@@ -1,1 +1,1 @@
-# Veri_Taban-_Proje_Odevi
+# Veri_Tabani_Proje_Odevi
